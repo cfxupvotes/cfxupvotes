@@ -44,7 +44,7 @@ The project has been actively developed and refined since 2024, focusing on:
 
 <div align="center">
 
-### 👉 https://cfxupvotes.com
+### https://cfxupvotes.com
 
 </div>
 
